@@ -1,0 +1,2 @@
+# ReplitSoruC-z-mleri
+ReplitSoruCözümleri
